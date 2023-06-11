@@ -7,7 +7,9 @@ Many subreddits are still actively discussing how to participate in the protest 
 Subreddits Participating On June 12th.
 
 Main thread: https://old.reddit.com/r/ModCoord/comments/1401qw5/incomplete_and_growing_list_of_participating/
+
 Thread2 (5-50k subs): https://www.reddit.com/r/ModCoord/comments/143fzf6/incomplete_and_growing_list_of_participating/
+
 Thread 3 (<5k): https://www.reddit.com/r/ModCoord/comments/146ffpb/incomplete_and_growing_list_of_participating/
 
 **40+ million:**
